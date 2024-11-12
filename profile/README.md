@@ -1,3 +1,3 @@
 # Censura
-yay
-join discord: https://discord.gg/404
+is this a new chromeos exploit group?
+YES! Our community discord will be released soon once we get enough supporters.
